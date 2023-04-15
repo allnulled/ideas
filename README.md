@@ -221,4 +221,8 @@ contexto
                                 - no a modo discurso subjetivo cual político orquestrando tu vida de ratón superviviente
                                   - son razonamientos formales basados en razonamientos formales previos (todo es informática o "lógica práctica") respaldados por numerosos experimentos documentados de buena fe
                                   - es decir: seguramente, tengan razón, o se acerquen mucho
-
+y aquí empieza a irse al dilema del sadismo.
+  - cuánto necesitan saber? no ven que sufren?
+    - ellos lo razonan como:
+      - en un entorno civilizado, surgen otras enfermedades
+        - "bueno, tenemos los remedios de todas las enfermedades conocidas... excepto de una", dicen.
