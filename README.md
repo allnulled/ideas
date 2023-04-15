@@ -1,0 +1,66 @@
+animalismo vs civilizacionismo
+
+contexto
+
+élites tecnológicas nos controlan y observan
+  - satélites con filtros caloríficos
+    - saben dónde estás siempre
+  - dispositivos móviles pueden lanzar interferencias cerebrales
+    - pueden evocar ideas en remoto
+    - pueden ejercer cierta presión mental en la toma de decisiones conscientes o no
+    - tienen ataques de hacking mental estudiadas
+      - ataques que tienen un efecto en el tiempo
+      - ataques personalizados
+      - basados en lenguaje y recuerdos
+    - los sistemas operativos los tienen todos hackeados
+      - código cerrado
+      - de la mano de empresas
+      - empresas que pertenecen a las élites tecnológicas
+      - las élites tecnológicas que nos controlan
+      - los sistemas operativos libres también
+        - porque vienen de organizaciones de software libre
+          - financiadas y comandadas por las élites tecnológicas
+  - tienen sensores en las tuberías
+    - saben cuánta agua consumes
+    - saben qué/cuánta comida consumes
+      - pueden hacer mapeos heces-mente
+      - pueden conocer tu estado solo por usar el lavabo convencional
+      - conocen tus niveles en sangre de forma automática
+  - acciones/participaciones en todo el mundo empresarial
+    - conocen la situación laboral de todas las personas
+    - pueden sabotear a una persona
+      - hacer que parezca loca
+      - que se le ha ido la mente
+      - dejarlo sin crédito
+        - ni económico, porque las empresas no te van a permitir entrar
+        - ni social, por diferentes factores expuestos que derivan en el fácil descrédito descrédito social 
+      - controlan toda la actividad humana, toda, mundial.
+  - telecomunicaciones totalmente controladas
+    - algoritmos de desencriptación de conocidos de antemano
+    - capacidad para usar computación cuántica para probar claves de desencriptación (si hiciera falta)
+    - pueden leer todo lo que entra y sale de tus dispositivos conectados a internet (o no)
+      - porque tienen tecnología para leer los movimientos de un procesador mediante el sonido que emite
+  - medios de comunicación y redes sociales financiadas y controladas
+    - utilizan técnicas como deep fake para dibujar personas en tu pantalla
+      - crean modas
+      - modas que te hacen repetir
+        - controlan la música, el cine, los videojuegos...
+        - controlan el IMAGINARIO COLECTIVO
+        - controlan el LENGUAJE COLECTIVO COMÚN
+        - controlan la CONVENCIÓN MENTAL, o la NORMALIDAD MENTAL
+        - en un momento dado, pueden tensar a los colectivos
+          - y someterlos a un estado de alarma mental
+            - inventándose una guerra, por ejemplo
+            - inventándose una razón más formal:
+              - que Rusia ha violado la voluntad de un pueblo. Es infundado: el presidente de Rusia es un robot de las étites tecnológicas.
+                - un ruso no busca imponerse, es la élite rusa que dice que ser patriota es pensar así
+              - que Europa nos quiere quitar los recursos. Es infundado: las élites de Europa son robots de las élites tecnológicas.
+                - un europeo no busca robar a nadie, quiere sus cosas cubiertas y ya está, cuenta los recursos, hace el cálculo, y a ver en cuánto se tiene que conformar para no requerir más
+          - bajo el cual las decisiones no se toman de la misma forma
+            - cada vez que hay atisbos de algo que puede poner en cuestión su mandato y orden indiscutible
+              - salta una guerra o algo
+              - una guerra que usan como bomba de humo para todo lo demás
+                - y pueden matar personas realmente, porque para ellas (las élites tecnológicas) son animales
+              - y con la que cortan cualquier muestra de inteligencia sublevante humana
+                - manteniendo al ser humano como especie (en su lenguaje, "pseudo-inteligente"), conviviendo en modo "granja de producción a ciegas"
+# ideas
