@@ -63,4 +63,78 @@ contexto
                 - y pueden matar personas realmente, porque para ellas (las élites tecnológicas) son animales
               - y con la que cortan cualquier muestra de inteligencia sublevante humana
                 - manteniendo al ser humano como especie (en su lenguaje, "pseudo-inteligente"), conviviendo en modo "granja de producción a ciegas"
-# ideas
+
+- utilizan a las personas como marionetas usando el dinero
+  - les hacen hacer cosas
+- entienden cómo funciona la mente humana mucho mejor que el humano mismo
+  - pueden estudiar su estado
+  - pueden predecir las transiciones del estado mental del individuo humano (neurotípico sobre todo) posibles y probables
+  - pueden elaborar ataques para disparar o aumentar las probabilidades de ciertas transiciones frente a otras
+    - a nivel colectivo ya hay mecanismos bastante efectivos
+    - a nivel individual, que también lo controlan, tienen que seguir estudiándolo, pero ya saben muchas cosas
+- todo esto es posible porque las élites tecnológicas parten de un medio donde toda la sinergia humana está a sus pies
+  - ellos saben que el cooperar es mucho más fuerte que el competir
+    - no hablan de comunismo y capitalismo, porque eso es para engañar a los otros
+    - hablan de cooperar y competir
+    - la cooperación lleva a las sociedades a puntos mucho más lejanos
+      - por eso ellos pueden hacer todo eso con las masas que competir
+      - pero los robots crean el caos y el absurdo entre la población humana
+        - y la faceta emocional humana termina siendo explotada, en mayoría, a favor de ideales de competición
+        - eso crea la división de la sociedad
+        - y ahí toman el control las élites tecnológicas
+    - ellos extraen el beneficio de la competición
+      - es como si todos los demás cooperaran, pero para ellos
+      - por eso las élites tecnológicas pueden llegar mucho más lejos
+        - se sospecha de un vínculo entre élites tecnológicas y androides y otros, otros no humanos
+        - pero no se conoce
+        - pero se sospecha muy fuerte
+          - se sospecha de sociedades donde
+            - o llevan mucho más tiempo, conocen mucho más, pueden mucho más
+            - y/o que cooperan en lugar de competir
+              - y conocen los métodos por los cuales cooperar es una opción
+                - no se obliga a cooperar, no es un estado militar, ni una dictadura
+                - pero las contribuciones son todas de buena fe
+                  - solo con eso, llegan más lejos
+                  - ellos lo tienen estudiado esto también
+                    - su sociedad, en parte, es como aburrida
+                      - porque lo saben todo
+                    - la Tierra, en cambio, es como un zoológico
+                      - pero con personas parecidas a ellos
+                      - es como ver humanos en la selva sobreviviendo
+                        - pero la selva es solo de entre humanos
+                    - y que la Tierra es como un Gran Hermano para ellos
+                      - donde pueden ver gente parecida a ellos
+                        - pero sometida a normas absurdas que hacen que sus vidas
+                          - sean como un programa de televisión
+                            - donde votan qué quieren que pase con tal o cual personaje
+                              - y si ya no rinde el personaje
+                                - hasta luego y a otra cosa
+                              - pero si es popular o cae en gracia en su sociedad
+                                - es elevado y afortunado
+                            - básicamente, deciden los sucesos
+                            - deciden las transiciones mentales
+                            - la "audiencia" decide la "suerte" bajo el sistema capitalista-selvático
+                              - en donde la suerte no existe, sino que es un exploit
+                                - un exploit que utilizan para opder interferir en los sucesos de las historias
+        - y es esa sospecha
+          - una sociedad que
+            - ha conseguido elaborar robots humaniformes
+            - los han usado para crear un entorno humanoide
+            - donde meten a humanos de verdad
+            - y van controlando sus vidas
+              - porque el sistema es una puta mierda
+                - y te deja rodeado de tecnología
+                - y a tu puta suerte
+                  - y no es a tu puta suerte
+                    - es a su puto exploit
+                      - y al final escribes en un ordenador porque
+                        - básicamente
+                          - no sientes tener control sobre nada más
+                          - e incluso ni así
+                          - pero encuentra la lógica
+                            - una señal, una luz en un camino oscuro
+                            - y sigues la señal
+                            - a ver a dónde lleva...
+                      
+      
+      
