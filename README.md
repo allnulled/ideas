@@ -135,6 +135,90 @@ contexto
                             - una señal, una luz en un camino oscuro
                             - y sigues la señal
                             - a ver a dónde lleva...
-                      
-      
-      
+- esta sociedad sabe que todo es informática
+  - y educan a los niños al revés
+    - primero informática 
+      - algoritmia
+      - matemáticas
+      - filosofía
+    - luego el mundo
+      - y pueden explicarles mucho más rápido todo
+      - y sus "absurdos caprichos" son más de ese tipo
+        - entornos humanoides donde estudian el comportamiento humano bajo entornos absurdos controlados
+          - todos matándose por un papel lila, por ejemplo
+        - los humillan, pero los estudian
+          - sacan 2 cosas
+            - calman su "animalismo" desde su ideal "civilizacionista"
+            - y lo justifican que lo usan como estudio conductual y genético
+- comprenden a la mente como un ordenador
+  - han hecho ingeniería inversa de la mente de forma cooperada y sincera
+  - y han hecho, documentado, comparado y estudiado muchos experimentos
+  - comprenden el pensamiento como un procesador o CPU
+  - comprenden el cuerpo como una máquina
+    - y han descubierto cosas importantes del código fuente del universo a niveles mucho más profundos también
+    - y han conseguido enlazar unas áreas de estudio con otras
+      - estudian al universo como un todo, no como asignaturas diferentes
+        - todo es informática: un programa que comprender:
+          - lo antes posible
+          - lo máximo posible
+          - lo mejor posible
+          - y aprender a usarlo a tu favor
+            - y eso incluye cooperar y usar la cooperación de una forma civilizada
+            - y eso incluye conocer la competición
+              - y todas las formas en que esta puede ser explotada
+      - son mucho más conscientes de la materia y de la función que impera sobre ella
+        - y también de la relación entre lo material y lo mental, así como a la inversa
+          - o de la función que impera sobre la mente también
+            - no se consideran religiosos, se consideran estudiosos del universo
+              - y beben de la sabiduría acumulada por una religión auténticamente "estudiosa"
+                - ellos saben que la memoria no es el fuerte humano
+                  - no son tan tontos como para cribar por la memoria a los estudiantes
+                    - es decir, no les hacen exámenes para ver si recuerdan lo que han aprendido
+                - ellos saben qué es una base de datos
+                  - y que ningún humano pueden competir con una base de datos en tema memorístico
+                - ellos no criban al que quiere estudiar
+                  - la criba es que quieras, no más
+              - comprenden las cosas mucho mejor y mucho más rápido, porque primero le dan las formas a los niños
+                - y luego las llenan
+                - las formas son la informática y la filosofía
+                  - la informática, o "lógica aplicada", son herramientas mentales formales
+                    - la materia, lo formal
+                  - la filosofía, o "extralógica", son herramientas mentales informales
+                    - atacan por la forma y por la no-forma
+                      - el "if you put water into a bottle" de Bruce Lee, pero:
+                        - ellos te dicen:
+                          - "be water, yes, but be teapot too, come on, it holds the water, it is useful too."
+      - y utilizan esta ventaja para someter a situaciones tensas o consideradas "infracivilizadas" a seres que se parecen a ellos
+        - incluso de capacidades similares
+          - es decir, no son tan distintos
+  - comprenden la conducta humana como un programa
+    - y pueden aplicarle exploits o ataques de software (o ideas, frente a hardware, o materias) malicioso desde otra máquina
+    - un humano en Tierra tendría que estudiar tantos años tantas carreras universitarias tan diferentes y tan a fondo y enlazar tantas cosas, que antes de que pudiera comprender este humano de Tierra lo que un chaval de la educación obligatoria debe saber, el terrícola se habría jubilado para entonces
+      - todo por competir en lugar de cooperar
+        - no sacrifican la individualidad por el hecho de competir
+        - ellos mucho de esto lo comprenden a modo de fórmulas matemáticas
+          - para ellos, es aburrido en ese sentido
+          - y Tierra los mantiene en contacto con la "aporafobia"
+            - es decir, ellos saben que están usando la aporafobia para someterlos a conductas zoológicas
+            - y ellos también saben que en su sociedad, el mecanismo más similar a la "aporafobia" que están empleando con ellos es precisamente
+              - mostrar las vidas humanas por sus televisiones
+              - porque les muestran que en un entorno no-civilizatorio
+                - podrían ser muy afortunados, sí
+                - pero podrían estar en la más absurda y jodida mierda también
+                  - porque sí. porque somos emocionales. y tú no me caes bien. en base a eso se organizan los animales
+                    - y al final, míralos, los puedes engañar igual con unos cuantos robots haciendo el gilipollas
+                      - no hace falta ni robots, con unos píxels y unos sonidos, los tienes haciendo piruetas
+                      - en su sociedad, todos lo saben.
+                      - todos saben cómo poner a hacer piruetas a un humano
+                      - y los podrías considerar humanos
+                      - es decir, sí. Sí. Sí, por qué no. Son humanos. Son... humanos.
+                        - y dicen ser la rama civilizada de la humanidad.
+                          - y se consiguieron emancipar de la rama "animal" de la humanidad, que se quedaron en Tierra
+                          - desde entonces, continuaron su historia juntos
+                            - y al final convirtieron a Tierra en una especie de módulo de experimentación/carcelario/trabajos forzados televisado y monitorizado
+                            - y los tienen haciendo el mono por hojas de papel
+                              - a todos. sienten lástima, pero lo justifican con que el argumento de este ser que vio la vida fue "TAL" y está equivocado porque "CUAL CUAL Y CUAL"
+                                - no a modo discurso subjetivo cual político orquestrando tu vida de ratón superviviente
+                                  - son razonamientos formales basados en razonamientos formales previos (todo es informática o "lógica práctica") respaldados por numerosos experimentos documentados de buena fe
+                                  - es decir: seguramente, tengan razón, o se acerquen mucho
+
